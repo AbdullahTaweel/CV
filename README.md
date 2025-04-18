@@ -1,6 +1,6 @@
 # Abdullah Al Tawil
 
-Coventry, United Kingdom | (+44) 744 07 18 774 | abdullahtaweel2030@gmail.com | [Your LinkedIn URL] | [Your GitHub URL]
+Coventry, United Kingdom | (+44) 744 07 18 774 | abdullahtaweel2030@gmail.com | [https://www.linkedin.com/in/abdullah-taweel/] | [[Your GitHub URL](https://github.com/AbdullahTaweel/)]
 
 ---
 
